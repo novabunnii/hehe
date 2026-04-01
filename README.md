@@ -2,6 +2,8 @@
 
 <p align="center">
 he/him/it/they ✦ !!
+pots, autism, adhd, osdd. ect </3 (yes, i am diagnosed.)
+negativity won't get you pretty far here
 </p>
 
 <p align="center">
@@ -18,5 +20,9 @@ he/him/it/they ✦ !!
 <img src="https://github.com/user-attachments/assets/c2c56e6c-dae9-43c3-924a-a010f5eefda2" width="110">
 <img src="https://github.com/user-attachments/assets/424b78f3-cf3d-4603-8d82-5a5288ca9bd0" width="110">
   
-## intro
+>> intro
 hi im nova !!
+i prefer not to say my age online but i'm somewhere inbetween the 15-18 age range.
+artist, writer, & electric guitarist
+i have exotic animals, ask 4 more info on ata!
+>> 
