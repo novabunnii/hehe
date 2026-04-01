@@ -20,9 +20,9 @@ negativity won't get you pretty far here
 <img src="https://github.com/user-attachments/assets/c2c56e6c-dae9-43c3-924a-a010f5eefda2" width="110">
 <img src="https://github.com/user-attachments/assets/424b78f3-cf3d-4603-8d82-5a5288ca9bd0" width="110">
   
->> intro
-⋆ ˖ ࣪
-hi im nova !!
+> intro ⋆ ˖ ࣪
+> 
+hi im nova, or koi . !!
  
 i prefer not to say my age online but i'm somewhere inbetween the 15-18 age range.
 
