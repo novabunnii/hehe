@@ -4,7 +4,8 @@
 he/him/it/they ✦ !!
 pots, autism, adhd, osdd. ect (yes, i am diagnosed.)
 
-<p align="center">  negativity won't get you pretty far here
+<p align="center"> negativity won't get you pretty far here
+<p align="center"> i am not entilted to be nice to you, nor be your friend. (esp if ur an asshole)
 <p/>
 
 <p align="center">
@@ -37,10 +38,26 @@ sometimes i disappear for a bit but i always come back.
 
 <p align="center"> 𝙳𝙽𝙸 .
 
-proshippers/yumeshippers. i don't have an issue with you guys personally but just don't int w me.
+proshippers/yumeshippers/radqueers. i don't have an issue with you guys personally but just don't int w me.
 
 if you're under 13, or above 18.
 
-zoophile, pedophile, racist, homophobic.
+zoophile, pedophile, racist, homophobic, trumpies.
 
 if you're someone i used to know, theres a reason why i don't anymore.
+
+dandy's world fans,,, sorry.
+
+if u romanticize mental health, gtfo. no explanation needed
+
+<p align="center"> 𝙱𝚈𝙸 !!
+
+i AM still a minor.
+
+i use tone tags if needed because i genuinely can't tell when people are sarcastic or not.
+
+i make a lot of kys and dark jokes and use caps ,, gulps.
+
+i am very awkward and try my best to keep convos going but it doesn't always work out
+
+i am autistic, i may require a bit more reassurance, if you don't like that bai bai !!
