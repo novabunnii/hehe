@@ -4,6 +4,7 @@
 he/him/it/they ✦ !!
 pots, autism, adhd, osdd. ect </3 (yes, i am diagnosed.)
 negativity won't get you pretty far here
+<p/>
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/cf916a8e-fd7f-4c52-8de8-e721b37a18ef" width="110">
