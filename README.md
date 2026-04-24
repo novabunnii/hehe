@@ -23,7 +23,7 @@ pots, autism, adhd, osdd. ect (yes, i am diagnosed.)
 <img src="https://github.com/user-attachments/assets/424b78f3-cf3d-4603-8d82-5a5288ca9bd0" width="110">
 <img src="https://i2.glitter-graphics.org/pub/361/361402t974dt94qh.gif" width="110">
 <img src="https://adriansblinkiecollection.neocities.org/a7.gif" width="110">
-<img src="[https://adriansblinkiecollection.neocities.org/c12.gif" width="110">
+<img src="https://adriansblinkiecollection.neocities.org/c12.gif" width="110">
 <img src="https://i2.glitter-graphics.org/pub/361/361402t974dt94qh.gif" width="110">
 <img src="https://i2.glitter-graphics.org/pub/361/361402t974dt94qh.gif" width="110">
 <img src="https://i2.glitter-graphics.org/pub/361/361402t974dt94qh.gif" width="110">
