@@ -1,7 +1,7 @@
 <h1 align="center">ɴᴏᴠᴀ / ᴋᴏɪ !!</h1>
 
 <p align="center">
-he/him/it/they ✦ !!
+he/him/it/they/pup ✦ !!
 pots, autism, adhd, osdd. ect (yes, i am diagnosed.)
 
 <p align="center"> negativity won't get you pretty far here
@@ -55,7 +55,7 @@ zoophile, pedophile, racist, homophobic, trumpies.
 
 if you're someone i used to know, theres a reason why i don't anymore.
 
-dandy's world fans,,, sorry.
+dandy's world fans,,, sorry. not really sorry
 
 if u romanticize mental health, gtfo. no explanation needed
 
